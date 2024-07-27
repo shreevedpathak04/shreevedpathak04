@@ -1,5 +1,5 @@
--  Hi, I’m shreevedpathakDIT India || Intern at BARC || Entrepreneur || Data Science Enthusiast || Research & Development || Vice-Presedent PCB.DIT || Data Analyst || Business Analyst || New Technology 
--  I’m currently learning Electronics And Telecommunication Engineering 
+-  Hi, I’m shreevedpathak  ,DIT India || Intern at ISRO|| EX-Intern at BARC || Entrepreneur || Data Science Enthusiast || Research & Development || Vice-Presedent PCB.DIT || Data Analyst || Business Analyst || New Technology 
+-  I’m  Electronics And Telecommunication Engineering Student
 -  I’m looking to collaborate on New Technology
 -  How to reach me -shreenidhivedpathak120@gmail.com,www.linkedin.com/in/shreenidhi-vedpathak-98b806229
 
